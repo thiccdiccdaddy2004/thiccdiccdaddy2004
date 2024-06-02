@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @thiccdiccdaddy2004
+- 👀 I’m interested in myself
+- 🌱 I’m currently learning C/C++
+- 💞️ I’m looking to collaborate on alcohol
+- 📫 Don't reach me 
+- 😄 Pronouns: |
+- ⚡ Fun fact: Edison is a crack-head
